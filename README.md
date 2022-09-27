@@ -1,0 +1,1 @@
+# -Dikd-rtgen-Kesitli-Dalga-K-lavuzu-tasar-m-
